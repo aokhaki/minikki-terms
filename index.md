@@ -101,4 +101,4 @@
 
 ---
 
-© 2026 aoba studio
+© 2026 aokhaki
